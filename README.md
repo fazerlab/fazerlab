@@ -1,4 +1,4 @@
-### Olá uma amostra dos projetos que desenvolvo   👋
+### Olá! Uma amostra dos projetos que desenvolvo   👋
 
  📫 Para consultoria e desenvolvimento de projetos entre em contato pelo email: fazerlab@gmail.com
 
